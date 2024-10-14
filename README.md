@@ -1,1 +1,2 @@
 # Estrategia-financiera-con-fideicomisos
+El fideicomiso es clave en tiempos de incertidumbre económica. Este instrumento permite gestionar bienes con flexibilidad y proteger el patrimonio. Su estructura involucra tres partes: fideicomitente, fiduciario y beneficiario, asegurando así una planificación eficiente. Ya sea para proteger activos o planificar una herencia, el fideicomiso ofrece múltiples opciones según las necesidades de cada persona o empresa.
